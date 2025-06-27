@@ -94,5 +94,4 @@ Explore global recipes, share your creations, and discover community favorites �
 ## 📬 Contact
 
 Made with ❤️ by **Abdullah Al Noman**
-📧 Email: [noman22622@gmail.com](mailto:noman22622@gmail.com)  
-🐱 GitHub: [abdullahalnoman003](https://github.com/abdullahalnoman003)
+📧 Email: [mdrakibulislam7018@gmail.com](mailto:mdrakibulislam7018@gmailcom)  
